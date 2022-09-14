@@ -1,2 +1,11 @@
 # GREEN
 Random cloning
+
+# NOTE
+
+ THIS TOOL IS NO FREE && NO PAID
+ONLY FOR FRIENDS
+
+
+# COMMAND
+
